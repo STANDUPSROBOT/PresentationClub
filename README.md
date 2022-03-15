@@ -14,3 +14,9 @@ Nous organisons les jeudi après midi des ateliers permettant aux étudiants de 
 - Projets par groupe (à l'initiative des participants)
 - Le grand projet du club (Sur proposition des particpants et du bureau, 1 seul par année)
 - Des goûtés
+
+
+## Nous rejoindre
+
+Vous pouvez nous rejoindre sur le serveur discord ici :
+https://discord.gg/VFMDQcqeBu
